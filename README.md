@@ -1,4 +1,5 @@
-### Hi there 👋
+<img src="https://static.wikia.nocookie.net/deathbattlefanon/images/6/6a/5951465_170x100.gif" alt="Tricky from Madness Combat">
+### WORK IN PROGRESS
 
 <!--
 **Foggy-boggy/Foggy-boggy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
