@@ -1,6 +1,6 @@
-<img src="https://static.wikia.nocookie.net/deathbattlefanon/images/6/6a/5951465_170x100.gif" alt="Tricky from Madness Combat">
-### WORK IN PROGRESS
-
+  <img src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/4149a1d35ab9816c-e6/s75x75_c1/a63975ffe3f5a93c85d889c20ac683e9e2474b25.gif">WELCOME TO MY LAIR<img src="https://64.media.tumblr.com/4829d986f95e4abc1137b5e03991802e/4149a1d35ab9816c-cd/s75x75_c1/20fd0f71237bfd5c21a22d92ad23420c7fceaaa4.gif">
+  -
+  
 <!--
 **Foggy-boggy/Foggy-boggy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
