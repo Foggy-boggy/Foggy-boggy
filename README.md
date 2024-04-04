@@ -16,6 +16,7 @@ Shit about me, I guess:
   - Age regressor and caregiver
   - Artist and fanfiction writer
   - I have a wonderful <a href="https://twitter.com/ForgetOleanders">fiance</a> who I love very very much muah ilu Ollie
+  - You should click me on <a href="https://pfq.link/Minisempaicute">PokeFarm</a> 
 
   <img src="https://64.media.tumblr.com/dc77a4aa87c565342b6a40ad182de6bc/423d3293741dba1e-21/s540x810/c0e5ce283ed2d7553607918eb692b91ec9d2fdc0.gif">
   
@@ -35,11 +36,6 @@ DNI:
   - People who think TT/TD on here isn't real, I have bad paranoia and a TD IRL, so please just block me
   - Valentino skins
   - Daycare Attendant(FNaF) simps
-
-FANDOM DNI
-  - 
-
-  - Vivziepop (Hazbin/Helluva fans are ok, just as long as you don't support her)
-  - DSMP
-  - John Doe
-  - Your Boyfriend
+  - Vivziepop stannies (Hazbin/Helluva fans are ok, just as long as you don't support her)
+  - DSMP fanz (fictivez r fine)
+  - John Doe/Your Boyfriend
