@@ -3,16 +3,16 @@
 
 (This page is a WIP, it'll look alot better in the future, I promise)
   
-  Hello and welcome to my pony.town intro page! I go by Debil or Caleb and my main pronouns are it/he. I usually type with a typing quirk and don't like using proper grammar in conversation, but this page is gonna be typed normally so it's easier to read. If you need a translation for any anything I say in-game please tell me! I'm usually sitting at spawn matching with my friends or in my agere pride skin. I'm usually not actually regressed when I wear it, it's just a comfort skin for me. 
+  Hello and welcome to my pony.town intro page! I go by Debil or Caleb and my main pronouns are it/he. I usually type with a typing quirk and don't like using proper grammar in conversation, but this page is gonna be typed normally so it's easier to read. If you need a translation for any anything I say in-game please tell me! I'm usually sitting at spawn matching with my friends or in either a skin of one of my theriotypes or my agere pride skin. I'm usually not actually regressed when I wear it, it's just a comfort skin for me. 
   
   <img src="https://64.media.tumblr.com/dc77a4aa87c565342b6a40ad182de6bc/423d3293741dba1e-21/s540x810/c0e5ce283ed2d7553607918eb692b91ec9d2fdc0.gif">
   
 Shit about me, I guess:
   -
   
-  - 19 (May 4th)
+  - 20 (May 4th)
   - Gay Trans guy with a <a href="https://pronouns.cc/@fr0g_b0n3s">gender/pronoun hoard</a>
-  - Wolf, cat, fox, and dragon therian
+  - Wolf, cat, fox, coyote, and dragon therian
   - Age regressor and caregiver
   - Artist and fanfiction writer
   - I have a wonderful <a href="https://twitter.com/ForgetOleanders">fiance</a> who I love very very much muah ilu Ollie
