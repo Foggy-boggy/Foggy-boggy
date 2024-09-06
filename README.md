@@ -24,7 +24,7 @@ DNI:
   - DDLG, ABDL, anti-agere or anti padded agere (I hate all of you ppl)
   - Anti TT/TD/DNT or whatever I have really bad paranoia and a TD IRL so just block me if that makes you mad ig
   - Your Boyfriend/Boyfriend to death/John Doe fans
-  - Vivziepop defenders
+  - Vivziepop defenders + Valentino fans
   - Anti-therian/otherkin
   - Endo systems/supporters
   - Anti yume/selfshipping
