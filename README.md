@@ -22,7 +22,7 @@
  <p align="center"> - Proship/comship/propara/radqueer shit like that</p>
  <p align="center"> - DDLG, ABDL, anti-agere or anti padded agere (I hate all of you ppl)</p>
  <p align="center"> - Anti TT/TD/DNT or whatever I have really bad paranoia and a TD IRL so just block me if that makes you mad ig</p>
- <p align="center"> - Your Boyfriend/Boyfriend to death/John Doe fans</p>
+ <p align="center"> - Your Boyfriend/Boyfriend to death/John Doe/Alfred's Playhouse fans</p>
  <p align="center"> - Vivziepop defenders (Hazbin/helluva fans are on thin ice)</p>
  <p align="center"> - Valentino(Hazbin) and Jimmy(Mouthwashing) defenders/fans</p>
  <p align="center"> - Anti-therian/otherkin</p>
