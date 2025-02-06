@@ -8,7 +8,7 @@
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Wolf, cat, fox, coyote, and dragon therian</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Midas from Fortnite fictionkin </3</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Age regressor</p>
-<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Artist and fanfiction writer</p>
+<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Artist, writer, and wannabe poketuber</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> I have a wonderful <a href="https://twitter.com/ForgetOleanders">fiance</a> who I love very very much muah ilu Ollie</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> <a href="https://madnesscombat.fandom.com/wiki/Tricky">Tricky</a>, <a href="https://madnesscombat.fandom.com/wiki/Jesus">Jeb</a>, <a href="https://madnesscombat.fandom.com/wiki/Phobos">Phobos</a>, <a href="https://marvelanimated.fandom.com/wiki/Magneto">Magneto</a>, and <a href="https://marvelanimated.fandom.com/wiki/Professor_X">Xavier</a> are my F/O's <333</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> You should click me on <a href="https://pfq.link/Minisempaicute">PokeFarm</a> and friend me on <a href="https://www.wolvden.com/profile/141696">Wolvden</a>!! /nf</p>
