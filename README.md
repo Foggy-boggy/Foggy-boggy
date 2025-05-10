@@ -3,7 +3,7 @@
 <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p>
 
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Call me Midas, Debil, or Caleb!</p>
-<p align="center"><img src="https://i.imgur.com/egIEngZ.png"> 20 (May 4th)</p>
+<p align="center"><img src="https://i.imgur.com/egIEngZ.png"> 21 (May 4th)</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Gay Trans guy with a <a href="https://pronouns.cc/@fr0g_b0n3s">gender/pronoun</a> hoard</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Wolf, cat, fox, coyote, and dragon therian</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Midas from Fortnite fictionkin </3</p>
@@ -14,6 +14,7 @@
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> You should click me on <a href="https://pfq.link/Minisempaicute">PokeFarm</a> and friend me on <a href="https://www.wolvden.com/profile/141696">Wolvden</a>!! /nf</p>
 <p align="center"><a href="https://pokefarm.com/summary/r1yYs"><img src="https://pokefarm.com/image/plateform_svg/r1yYs"><a href="https://pokefarm.com/summary/r1yY7"><img src="https://pokefarm.com/image/plateform_svg/r1yY7"></a><a href="https://pokefarm.com/summary/P1rrR"><img src="https://pokefarm.com/image/plateform_svg/P1rrR"></a><a href="https://pokefarm.com/summary/PvJjc"><img src="https://pokefarm.com/image/plateform_svg/PvJjc"></a></p>
 <p align="center"><a href="https://pokefarm.com/summary/mF9_6"><img src="https://pokefarm.com/image/plateform_svg/mF9_6"><a href="https://pokefarm.com/summary/rKmVJ"><img src="https://pokefarm.com/image/plateform_svg/rKmVJ"></a><a href="https://pokefarm.com/summary/Pv4Fs"><img src="https://pokefarm.com/image/plateform_svg/Pv4Fs"></a><a href="https://pokefarm.com/summary/rrqKV"><img src="https://pokefarm.com/image/plateform_svg/rrqKV"></a></p>
+<p align="center"><a href="https://pfq.link/?J0Mh79"><img src="https://pokefarm.com/image/plateform_svg/J0Mh79"/></a><a href="https://pfq.link/?Q-nyl"><img src="https://pokefarm.com/image/plateform_svg/Q-nyl"/></a><a href="https://pfq.link/?J0Lzzh"><img src="https://pokefarm.com/image/plateform_svg/J0Lzzh"/></a></p>
   
 <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p> 
 
