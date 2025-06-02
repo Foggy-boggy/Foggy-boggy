@@ -19,15 +19,15 @@
  <p align="center"> - My DNI is on my straw.page, plz read it !!!</p>
   <p align="center"> - DO NOT take inspo from or copy my skins. It makes me rlly uncomfortable and I will block you for it.</p>
  <p align="center"> - I have a TD irl so no, I'm not mocking irl TD's by having it in (most of) my pony names lmao. I just have bad paranoia and I've had ppl be rlly creepy to me on here before so it's just to keep me sane. I'm open to cuddles as long as u ask first and you can be normal <3</p>
- <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, they just make me rlly nervous (in a good way!!!)</p>
+ <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, I just have weird anxiety and I nvr know how to react lol</p>
  <p align="center"> - I usually block every minor I see because I only play on 18+</p>
  <p align="center"> - I try to permablock all skins from fandoms that make me uncomfortable (Your Boyfriend/John Doe/Alfred's Playhouse, etc.)</p>
- <p align="center"> - I also permablock Valentino(Hazbin) and Jimmy(Mouthwashing) skins</p>
+ <p align="center"> - I also permablock Valentino(Hazbin) and Jimmy(Mouthwashing) skins (unless ur a fictive, then we're usually chill)</p>
 
    <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p> 
    
 <p align="center"><a href="https://pokefarm.com/summary/r1yYs"><img src="https://pokefarm.com/image/plateform_svg/r1yYs"><a href="https://pokefarm.com/summary/r1yY7"><img src="https://pokefarm.com/image/plateform_svg/r1yY7"></a><a href="https://pokefarm.com/summary/P1rrR"><img src="https://pokefarm.com/image/plateform_svg/P1rrR"></a><a href="https://pokefarm.com/summary/PvJjc"><img src="https://pokefarm.com/image/plateform_svg/PvJjc"></a></p>
 <p align="center"><a href="https://pokefarm.com/summary/mF9_6"><img src="https://pokefarm.com/image/plateform_svg/mF9_6"><a href="https://pokefarm.com/summary/rKmVJ"><img src="https://pokefarm.com/image/plateform_svg/rKmVJ"></a><a href="https://pokefarm.com/summary/Pv4Fs"><img src="https://pokefarm.com/image/plateform_svg/Pv4Fs"></a><a href="https://pokefarm.com/summary/rrqKV"><img src="https://pokefarm.com/image/plateform_svg/rrqKV"></a></p>
-<p align="center"><a href="https://pfq.link/?JbYcK4"><img src="https://pokefarm.com/image/plateform_svg/JbYcK4"/></a><a href="https://pfq.link/?J0Mh79"><img src="https://pokefarm.com/image/plateform_svg/J0Mh79"/></a><a href="https://pfq.link/?Q-nyl"><img src="https://pokefarm.com/image/plateform_svg/Q-nyl"/></a><a href="https://pfq.link/?JbgPNZ"><img src="https://pokefarm.com/image/plateform_svg/JbgPNZ"/></a><a href="https://pfq.link/?J0Lzzh"><img src="https://pokefarm.com/image/plateform_svg/J0Lzzh"/></a></p>
+<p align="center"><a href="https://pfq.link/?JbYcK4"><img src="https://pokefarm.com/image/plateform_svg/JbYcK4"/></a><a href="https://pfq.link/?J0Mh79"><img src="https://pokefarm.com/image/plateform_svg/J0Mh79"/></a><a href="https://pfq.link/?Q-nyl"><img src="https://pokefarm.com/image/plateform_svg/Q-nyl"/></a><a href="https://pfq.link/?JbgPNZ"><img src="https://pokefarm.com/image/plateform_svg/JbgPNZ"/></a><a href="https://pfq.link/?J0Lzzh"><img src="https://pokefarm.com/image/plateform_svg/J0Lzzh"/></a><a href="https://pfq.link/?Jb31Kq"><img src="https://pokefarm.com/image/plateform_svg/Jb31Kq"/></a></p>
 <p align="center"><img src="https://external-media.spacehey.net/media/syus8JR7ncYewoeAY_-7VUmhUHSG28_RKKDOPMm6cdxw=/https://64.media.tumblr.com/6886c38f1328500fae851bebf96c8c8d/0849fa6899c3a334-9b/s540x810/a06c7e0342f4ec73f6ee8fa3c05346cfb696db5b.gifv">
 </p>
