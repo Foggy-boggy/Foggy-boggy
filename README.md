@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p>
 
-<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Call me Midas, Debil, or Caleb!</p>
+<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Call me Wolf, Midas, or Caleb!</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> 21 (May 4th)</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Gay Trans guy with a <a href="https://pronouns.cc/@fr0g_b0n3s">gender/pronoun</a> hoard</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Wolf, cat, fox, coyote, and dragon(?) therian</p>
@@ -18,11 +18,11 @@
 <p align="center">BYI:</p>
  <p align="center"> - My DNI is on my straw.page, plz read it !!!</p>
   <p align="center"> - DO NOT take inspo from or copy my skins. It makes me rlly uncomfortable and I will block you for it.</p>
- <p align="center"> - I have a TD irl so no, I'm not mocking irl TD's by having it in (most of) my pony names lmao. I just have bad paranoia and I've had ppl be rlly creepy to me on here before so it's just to keep me sane. I'm open to cuddles as long as u ask first and you can be normal <3</p>
- <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, I just have weird anxiety and I nvr know how to react lol</p>
+ <p align="center"> - I have bad paranoia and I've had ppl be rlly creepy to me on here before so I tend to use the TD tag so ppl keep their distance. I'm open to talking to ppl tho! And cuddles too as long as you ask first and you can be normal <3</p>
+ <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, I just have anxiety and I nvr know how to react lol</p>
  <p align="center"> - I usually block every minor I see because I only play on 18+</p>
- <p align="center"> - I try to permablock all skins from fandoms that make me uncomfortable (Your Boyfriend/John Doe/Alfred's Playhouse, etc.)</p>
- <p align="center"> - I also permablock Valentino(Hazbin) and Jimmy(Mouthwashing) skins (unless ur a fictive, then we're usually chill)</p>
+ <p align="center"> - I try to permahide all skins from fandoms that make me uncomfortable (Your Boyfriend/John Doe/Alfred's Playhouse, etc.)</p>
+ <p align="center"> - I also permahide Valentino (Hazbin), Vox (Hazbin), and Jimmy (Mouthwashing) skins (unless ur a fictive, then we're usually chill)</p>
 
    <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p> 
    
