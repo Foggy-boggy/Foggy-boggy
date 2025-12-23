@@ -18,6 +18,7 @@
 <p align="center">BYI:</p>
  <p align="center"> - My DNI is on my straw.page, plz read it !!!</p>
   <p align="center"> - DO NOT take inspo from or copy my skins. It makes me rlly uncomfortable and I will block you for it.</p>
+    <p align="center"> - I don't consent to being recorded!!! If it's on accident and I'm in the bg of your tiktok or whatever by chance then it's fine, but pls don't record me picking colors for ur skins or whatever</p>
  <p align="center"> - I have bad paranoia and I've had ppl be rlly creepy to me on here before so I tend to use the TD tag so ppl keep their distance. I'm open to talking to ppl tho! And cuddles too as long as you ask first and you can be normal <3</p>
  <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, I just have anxiety and I nvr know how to react lol</p>
  <p align="center"> - I usually block every minor I see because I only play on 18+</p>
