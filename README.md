@@ -3,14 +3,14 @@
 <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p>
 
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Call me Wolf, Midas, or Caleb!</p>
-<p align="center"><img src="https://i.imgur.com/egIEngZ.png"> 21 (May 4th)</p>
+<p align="center"><img src="https://i.imgur.com/egIEngZ.png"> 22 (May 4th)</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Gay Trans guy with a <a href="https://pronouns.cc/@fr0g_b0n3s">gender/pronoun</a> hoard</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Wolf, cat, fox, coyote, and dragon(?) therian</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Midas from Fortnite fictionkin </3</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> Age regressor</p>
 <p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> Artist, writer, and wannabe poketuber</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> I have a wonderful <a href="https://twitter.com/ForgetOleanders">fiance</a> who I love very very much muah ilu Ollie</p>
-<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> <a href="https://madnesscombat.fandom.com/wiki/Tricky">Tricky</a>, <a href="https://madnesscombat.fandom.com/wiki/Jesus">Jeb</a>, <a href="https://madnesscombat.fandom.com/wiki/Phobos">Phobos</a>, <a href="https://marvelanimated.fandom.com/wiki/Magneto">Magneto</a>, <a href="https://marvelanimated.fandom.com/wiki/Professor_X">Xavier</a>, and <a href="https://metalgear.fandom.com/wiki/Revolver_Ocelot">Ocelot</a> are my F/O's <333</p>
+<p align="center"><img src="https://i.imgur.com/T6A9CBa.png"> <a href="https://madnesscombat.fandom.com/wiki/Tricky">Tricky</a>, <a href="https://madnesscombat.fandom.com/wiki/Jesus">Jeb</a>, <a href="https://madnesscombat.fandom.com/wiki/Phobos">Phobos</a>, <a href="https://marvelanimated.fandom.com/wiki/Magneto">Magneto</a>, <a href="https://marvelanimated.fandom.com/wiki/Professor_X">Xavier</a>, <a href="https://metalgear.fandom.com/wiki/Revolver_Ocelot">Ocelot</a>, <a href="https://metalgear.fandom.com/wiki/Big_Boss">Big Boss</a>, and <a href="https://metalgear.fandom.com/wiki/Kazuhira_Miller">Kazuhira Miller</a> are my F/O's <333</p>
 <p align="center"><img src="https://i.imgur.com/egIEngZ.png"> You should click me on <a href="https://pfq.link/Minisempaicute">PokeFarm</a> and friend me on <a href="https://www.wolvden.com/profile/141696">Wolvden</a>!! /nf</p>
   
   <p align="center"><img src="https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/skulldivider.gif"></p> 
@@ -19,9 +19,9 @@
  <p align="center"> - My DNI is on my straw.page, plz read it !!!</p>
   <p align="center"> - DO NOT take inspo from or copy my skins. It makes me rlly uncomfortable and I will block you for it.</p>
     <p align="center"> - I don't consent to being recorded!!! If it's on accident and I'm in the bg of your tiktok or whatever by chance then it's fine, but pls don't record me picking colors for ur skins or whatever</p>
- <p align="center"> - I have bad paranoia and I've had ppl be rlly creepy to me on here before so I tend to use the TD tag so ppl keep their distance. I'm open to talking to ppl tho! And cuddles too as long as you ask first and you can be normal <3</p>
+ <p align="center"> - I have bad paranoia and I've had ppl be rlly creepy to me on here before so some of my skins have the TD tag on them so ppl keep their distance. I'm open to talking to ppl tho! And cuddles too as long as you ask first and you can be normal <3</p>
  <p align="center"> - I don't take compliments very well so if I react in a weird way, that's why!! I'm ok with getting them, I just have anxiety and I nvr know how to react lol</p>
- <p align="center"> - I usually block every minor I see because I only play on 18+</p>
+ <p align="center"> - I block every minor I see because I only play on 18+</p>
  <p align="center"> - I try to permahide all skins from fandoms that make me uncomfortable (Your Boyfriend/John Doe/Alfred's Playhouse, etc.)</p>
  <p align="center"> - I also permahide Valentino (Hazbin), Vox (Hazbin), and Jimmy (Mouthwashing) skins (unless ur a fictive, then we're usually chill)</p>
 
